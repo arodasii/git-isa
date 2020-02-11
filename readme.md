@@ -1,0 +1,1 @@
+Minhas férias foram ótimas, no quesito de que o ano passado foi bastante estressante e esses meses de férias foram ótimos para me recuperar. Infelizmente não pude viajar, mas pude ir à praia e pude fazer outras coisas divertidas, mesmo que a maior parte das férias eu passei em casa.
